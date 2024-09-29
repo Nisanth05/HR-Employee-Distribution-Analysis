@@ -75,6 +75,7 @@ Younger employees (18-24) and older employees (55-60) are underrepresented. Offe
 
 
 
+![HR dashboard](https://github.com/user-attachments/assets/5aad5b93-454c-400f-817c-0d1245bcb3d8)
 
 
 
